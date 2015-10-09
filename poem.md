@@ -49,6 +49,7 @@ I am the dream and the hope of the slave.
 I _rise_
 I _rise_
 I _rise_. 
-            *Maya Angelou*
+
+ *Maya Angelou*
             
 http://www.poemhunter.com/poem/still-i-rise/
