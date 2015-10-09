@@ -1,7 +1,8 @@
+#Still I Rise
 You may write me down in history
 With your bitter, twisted lies,
 You may tread me in the very dirt
-But still, like dust, I'll rise.
+But still, like dust, I'll _rise_.
 
 Does my sassiness upset you? 
 Why are you beset with gloom? 
@@ -11,7 +12,7 @@ Pumping in my living room.
 Just like moons and like suns,
 With the certainty of tides,
 Just like hopes springing high,
-Still I'll rise.
+Still I'll _rise_.
 
 Did you want to see me broken? 
 Bowed head and lowered eyes? 
@@ -26,7 +27,7 @@ Diggin' in my own back yard.
 You may shoot me with your words,
 You may cut me with your eyes,
 You may kill me with your hatefulness,
-But still, like air, I'll rise.
+But still, like air, I'll _rise_.
 
 Does my sexiness upset you? 
 Does it come as a surprise
@@ -34,19 +35,20 @@ That I dance like I've got diamonds
 At the meeting of my thighs? 
 
 Out of the huts of history's shame
-I rise
+I _rise_
 Up from a past that's rooted in pain
-I rise
+I _rise_
 I'm a black ocean, leaping and wide,
 Welling and swelling I bear in the tide.
 Leaving behind nights of terror and fear
-I rise
+I _rise_
 Into a daybreak that's wondrously clear
-I rise
+I _rise_
 Bringing the gifts that my ancestors gave,
 I am the dream and the hope of the slave.
-I rise
-I rise
-I rise. 
-Maya Angelou
+I _rise_
+I _rise_
+I _rise_. 
+            *Maya Angelou*
+            
 http://www.poemhunter.com/poem/still-i-rise/
